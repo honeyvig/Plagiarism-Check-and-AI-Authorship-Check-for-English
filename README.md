@@ -1,0 +1,1 @@
+# Plagiarism-Check-and-AI-Authorship-Check-for-English
